@@ -50,10 +50,7 @@ No dia 7 de setembro de 1965, o Brasil parou e concentrou todas suas atenções 
 </p>
 <br>
 
-### Refêrencias
-<p align= "justify">
 
-**Site Palmeiras**. Disponível em: <https://www.palmeiras.com.br>. Acesso em: 15 set. 2022.
-</p>
+
 
 ‌
